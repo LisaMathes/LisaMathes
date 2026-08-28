@@ -45,7 +45,7 @@ Meu objetivo é continuar desenvolvendo minhas habilidades profissionais e tecno
 
 📧 E-mail: elisangela.sato@aluno.cps.sp.gov.br
 
-💼 LinkedIn: SEU-LINKEDIN-AQUI
+💼 LinkedIn: www.linkedin.com/in/liza-sato-01608a249
 
 ---
 
